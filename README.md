@@ -1,16 +1,15 @@
-## Hi there 👋
+### Boas vindas ao meu perfil 🩵 (mafer)🩵
 
-<!--
-**fefer94/fefer94** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+meu nome e fefer 🙃  
 
-Here are some ideas to get you started:
+- estou estudando na Alura
+- estou me desenvolvendo na liguagem JavaScript
+- utilizo esse espaco para aminha organizao e compartilhamento dos meus projetos desenvolvidos
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### voce pode entrar em contato comigo 📧
+
+00001113915092sp@al.educacao.sp.gov.br
+
+@seo.K1994
+
+![](https://media.tenor.com/nyEQbL17-WAAAAAM/jin-love-jin-kiss.gif)
