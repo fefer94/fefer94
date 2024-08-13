@@ -12,6 +12,5 @@ meu nome e fefer 🙃
 
 @seo.K1994
 
-![](https://media.tenor.com/nyEQbL17-WAAAAAM/jin-love-jin-kiss.gif)
+![](https://media.tenor.com/nyEQbL17-WAAAAAM/jin-love-jin-kiss.gif) ![descrição do GIF](https://media.tenor.com/OG_aIeIZdJ0AAAAM/toki-onjoji-saki.gif)
 
-![descrição do GIF](https://media.tenor.com/OG_aIeIZdJ0AAAAM/toki-onjoji-saki.gif)
