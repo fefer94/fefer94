@@ -12,5 +12,5 @@ meu nome e fefer 🙃
 
 @seo.K1994
 
-![](https://media.tenor.com/nyEQbL17-WAAAAAM/jin-love-jin-kiss.gif) ![descrição do GIF] (https://media.tenor.com/APGTmejkDIEAAAAM/finger-heart-bts.gif)
+![](https://media.tenor.com/nyEQbL17-WAAAAAM/jin-love-jin-kiss.gif) ![descrição do GIF](https://media.tenor.com/APGTmejkDIEAAAAM/finger-heart-bts.gif)
 
